@@ -1,1 +1,1 @@
-ini adalah alur pembuktian untuk no2
+ini adalah alur pembuktian untuk no 2
